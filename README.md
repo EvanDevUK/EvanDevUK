@@ -1,2 +1,2 @@
-### I Develop Thins
+### I Develop Things
 https://evanball.co.uk 🐧
